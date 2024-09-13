@@ -1,10 +1,3 @@
-![images](https://github.com/user-attachments/assets/295bc3ba-b0ff-422f-b2ae-cfcc6c4fc134)
+**Cauã Martinez** 愛
 
-
-
-
-
-
-
-
-Cauã Martinez de Almeida Toschi 愛 tlgd
+![images](https://github.com/user-attachments/assets/aa7553e0-8276-4adf-a3ba-51c3b9e3b1f8)
